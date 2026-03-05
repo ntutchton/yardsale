@@ -65,7 +65,7 @@ Original Item: [link]([http://url](https://www.ikea.com/us/en/p/storklinta-6-dra
 #### Brother Printer MFCJ1205W
 Asking: $50
 Notes: Does NOT require a subscription or anything, just ink cartridges
-Original Item: [link]([http://url](https://www.brother-usa.com/products/mfcj1205w?srsltid=AfmBOorJL7HEVfwP9PqRRcc8lQ4I4sqwZdZx2VNRlTCuYMpLsh6Ww6HM))
+Original Item: [link](https://www.brother-usa.com/products/mfcj1205w?srsltid=AfmBOorJL7HEVfwP9PqRRcc8lQ4I4sqwZdZx2VNRlTCuYMpLsh6Ww6HM))
 
 ![IMG_1931.JPEG](images/IMG_1931.JPEG)
 
