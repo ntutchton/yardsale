@@ -78,14 +78,14 @@ Notes: Lost the remote, but works fine via the buttons on the side
 
 ---
 #### Roof Mount for TV
-Asking: $50
+Asking: $50, free with TV
 Original Item: [link](https://www.amazon.com/dp/B01GGR6I24?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1&th=1)
 
 ![IMG_2014.JPEG](images/IMG_2014.JPEG)
 
 ---
 #### Window Air Conditioner 12000 BTU 
-Asking: $150
+Asking: $100
 Notes: 19.5'' x 20.5'' x 13.5''. Less than 1 year old.
 Original Item: [link]([http://url](https://www.amazon.com/dp/B0CZL2RQ6G?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1&th=1)
 
@@ -119,7 +119,7 @@ Free
 
 ---
 #### Exercise Bike (Bowflex C6)
-Asking: $300
+Asking: $200
 Original Item: [link](https://www.bowflex.com/product/c6-exercise-bike/100894.html?adID=DOFG2BFEED1&srsltid=AfmBOoqTBPC1lPpEzvxtrNeFDWpEmi4U0XwFawHcy6sHqKWj_UEQVwk14Y8)
 
 ![IMG_1940.JPEG](images/IMG_1940.JPEG)
@@ -139,7 +139,7 @@ Original Item: [link]([http://url](https://www.samsung.com/ca/support/model/UN65
 
 ---
 #### Wall Mount for TV
-Asking: $50
+Asking: $50, free with TV
 
 ![IMG_013.JPEG](images/IMG_2017.JPEG)
 
@@ -195,7 +195,7 @@ Asking: $20
 
 ---
 #### Auger (1 Person,  Gas Powered)
-Asking: $150
+Asking: $100
 Original Item: [link]([http://url](https://www.amazon.com/dp/B07Y45XY19?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_2&th=1)
 
 ![IMG_1998.JPEG](images/IMG_1998.JPEG)
@@ -209,7 +209,7 @@ Notes: 160cm, bindings included
 
 ---
 #### Craftsman Lawnmower
-Asking: $150
+Asking: $100
 Original Item: [link]([http://url](https://www.lowes.com/pd/CRAFTSMAN-M110-140-cc-21-in-Gas-Push-Lawn-Mower-with-Briggs-Stratton-Engine/1000676311)
 
 ![IMG_2001.JPEG](images/IMG_2001.JPEG)
@@ -253,7 +253,7 @@ Asking: $10
 
 ---
 #### 3 100' rolls 48 inch Welded Wire
-Asking: $25 each
+Asking: $20 each, $50 for all 3
 Original Item: [link](https://www.lowes.com/pd/Garden-Zone-100-ft-x-4-ft-Gray-Steel-Welded-Wire-Garden-Welded-Wire-Rolled-Fencing/5000203787)
 
 ![IMG_2012.JPEG](images/IMG_2012.JPEG)
