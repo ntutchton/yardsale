@@ -10,7 +10,7 @@ Original Item: [link](https://brooklynkayakcompany.com/products/brooklyn-9-2-sin
 Asking: $200
 Notes: 28'' tall, 36'' deep.  the longer part of the "L" shape is ~9ft and the shorter run is ~8ft.
 
-![IMG_1973.JPG](images/IMG_1973.JPG)
+![IMG_1973.JPEG](images/IMG_1973.JPEG)
 
 ---
 #### Adjustable Standing Desk
