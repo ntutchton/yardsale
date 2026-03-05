@@ -10,7 +10,7 @@ Original Item: [link](https://brooklynkayakcompany.com/products/brooklyn-9-2-sin
 Asking: $200
 Notes: 28'' tall, 36'' deep.  the longer part of the "L" shape is ~9ft and the shorter run is ~8ft.
 
-![IMG_013.JPEG](images/IMG_1973.JPG)
+![IMG_1973.JPG](images/IMG_1973.JPG)
 
 ---
 #### Adjustable Standing Desk
@@ -87,14 +87,14 @@ Original Item: [link](https://www.amazon.com/dp/B01GGR6I24?ref_=ppx_hzsearch_con
 #### Window Air Conditioner 12000 BTU 
 Asking: $100
 Notes: 19.5'' x 20.5'' x 13.5''. Less than 1 year old.
-Original Item: [link]([http://url](https://www.amazon.com/dp/B0CZL2RQ6G?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1&th=1)
+Original Item: [link](https://www.amazon.com/dp/B0CZL2RQ6G?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1&th=1)
 
 ![IMG_1933.JPEG](images/IMG_1933.JPEG)
 
 ---
 #### Clothes Rack
 Asking: $20
-Original Item: [link](amazon.com/dp/B092ZD77TL?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1)
+Original Item: [link](http://amazon.com/dp/B092ZD77TL?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1)
 
 ![IMG_1935.JPEG](images/IMG_1935.JPEG)
 
@@ -133,7 +133,7 @@ Asking: $50
 ---
 #### 65'' Samsung UHD Smart TV
 Asking: $200
-Original Item: [link]([http://url](https://www.samsung.com/ca/support/model/UN65NU6900FXZC/))
+Original Item: [link](https://www.samsung.com/ca/support/model/UN65NU6900FXZC/))
 
 ![IMG_2016.JPEG](images/IMG_2016.JPEG)
 
@@ -146,7 +146,7 @@ Asking: $50, free with TV
 ---
 #### Polk Soundbar & Subwoofer
 Asking: $100
-Original Item: [link](amazon.com/dp/B089HY2K1R?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_2)
+Original Item: [link](https://amazon.com/dp/B089HY2K1R?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_2)
 
 ![IMG_1986.JPEG](images/IMG_1986.JPEG)
 
@@ -196,7 +196,7 @@ Asking: $20
 ---
 #### Auger (1 Person,  Gas Powered)
 Asking: $100
-Original Item: [link]([http://url](https://www.amazon.com/dp/B07Y45XY19?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_2&th=1)
+Original Item: [link](https://www.amazon.com/dp/B07Y45XY19?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_2&th=1)
 
 ![IMG_1998.JPEG](images/IMG_1998.JPEG)
 
@@ -210,14 +210,14 @@ Notes: 160cm, bindings included
 ---
 #### Craftsman Lawnmower
 Asking: $100
-Original Item: [link]([http://url](https://www.lowes.com/pd/CRAFTSMAN-M110-140-cc-21-in-Gas-Push-Lawn-Mower-with-Briggs-Stratton-Engine/1000676311)
+Original Item: [link](https://www.lowes.com/pd/CRAFTSMAN-M110-140-cc-21-in-Gas-Push-Lawn-Mower-with-Briggs-Stratton-Engine/1000676311)
 
 ![IMG_2001.JPEG](images/IMG_2001.JPEG)
 
 ---
 #### DeWalt Chainsaw (Cordless, 12in)
 Asking: $100
-Original Item: [link]([http://url](https://www.homedepot.com/p/DEWALT-20V-MAX-12in-Cordless-Battery-Powered-Chainsaw-Kit-with-1-5-Ah-Battery-and-Charger-DCCS621P1/331965411?source=shoppingads&locale=en-US&fp=ggl)
+Original Item: [link](https://www.homedepot.com/p/DEWALT-20V-MAX-12in-Cordless-Battery-Powered-Chainsaw-Kit-with-1-5-Ah-Battery-and-Charger-DCCS621P1/331965411?source=shoppingads&locale=en-US&fp=ggl)
 
 ![IMG_2003.JPEG](images/IMG_2003.JPEG)
 
@@ -240,8 +240,9 @@ Asking: $50
 ![IMG_2008.JPEG](images/IMG_2008.JPEG)
 
 ---
-#### HiLift “Farm” Jack
+#### HiLift Jack
 Asking: $50
+Original Item [link](https://www.offroadwarehouse.com/product/42-jack-hl425/Default.aspx?gfid=p193908&)
 
 ![IMG_2009.JPEG](images/IMG_2009.JPEG)
 
