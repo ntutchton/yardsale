@@ -1,4 +1,15 @@
+
+
 # Yardsale Items
+
+Below is a list of everything we would like to get rid of. Contact me if interested at:
+
+Text: ‪(802) 870-6650‬
+
+Email: spotdlbot@gmail.com
+
+---
+
 #### 2 Kayaks
 Asking: $250 each, $400 for both
 
@@ -8,7 +19,7 @@ Original Item: [link](https://brooklynkayakcompany.com/products/brooklyn-9-2-sin
 
 ---
 #### Couch
-Asking: $200
+Asking: $300
 
 Notes: 28'' tall, 36'' deep.  the longer part of the "L" shape is ~9ft and the shorter run is ~8ft.
 
@@ -73,7 +84,8 @@ Original Item: [link]([http://url](https://www.ikea.com/us/en/p/storklinta-6-dra
 Asking: $50
 
 Notes: Does NOT require a subscription or anything, just ink cartridges
-Original Item: [link](https://www.brother-usa.com/products/mfcj1205w?srsltid=AfmBOorJL7HEVfwP9PqRRcc8lQ4I4sqwZdZx2VNRlTCuYMpLsh6Ww6HM))
+
+Original Item: [link](https://www.brother-usa.com/products/mfcj1205w?srsltid=AfmBOorJL7HEVfwP9PqRRcc8lQ4I4sqwZdZx2VNRlTCuYMpLsh6Ww6HM)
 
 ![IMG_1931.JPEG](images/IMG_1931.JPEG)
 
@@ -125,7 +137,7 @@ Free
 
 ---
 #### Exercise Bike (Bowflex C6)
-Asking: $200
+Asking: $250
 
 Original Item: [link](https://www.bowflex.com/product/c6-exercise-bike/100894.html?adID=DOFG2BFEED1&srsltid=AfmBOoqTBPC1lPpEzvxtrNeFDWpEmi4U0XwFawHcy6sHqKWj_UEQVwk14Y8)
 
@@ -174,6 +186,7 @@ Free
 ---
 #### Recliner Chair
 Asking: $50
+
 
 ![IMG_1990.JPEG](images/IMG_1990.JPEG)
 
