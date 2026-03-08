@@ -6,7 +6,7 @@ Below is a list of everything we would like to get rid of. Contact me if interes
 
 Text: ‪(802) 870-6650‬
 
-Email: spotdlbot@gmail.com
+Email: ntutchton@gmail.com
 
 ---
 
