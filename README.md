@@ -4,8 +4,7 @@ Asking: $250 each, $400 for both
 
 Original Item: [link](https://brooklynkayakcompany.com/products/brooklyn-9-2-single-kayak?variant=52019836846444)
 
-
-![IMG_013.JPEG](images/IMG_013.JPEG)
+![IMG_2043.JPEG](images/IMG_2043.JPEG)
 
 ---
 #### Couch
@@ -85,14 +84,6 @@ Asking: $100
 Notes: Lost the remote, but works fine via the buttons on the side
 
 ![IMG_2015.JPEG](images/IMG_2015.JPEG)
-
----
-#### Roof Mount for TV
-Asking: $50, free with TV
-
-Original Item: [link](https://www.amazon.com/dp/B01GGR6I24?ref_=ppx_hzsearch_conn_dt_b_fed_asin_title_1&th=1)
-
-![IMG_2014.JPEG](images/IMG_2014.JPEG)
 
 ---
 #### Window Air Conditioner 12000 BTU 
@@ -255,12 +246,6 @@ Asking: $20
 Asking: $5 each
 
 ![IMG_2006.JPEG](images/IMG_2006.JPEG)
-
----
-#### Floor Jack
-Asking: $50
-
-![IMG_2008.JPEG](images/IMG_2008.JPEG)
 
 ---
 #### HiLift Jack
