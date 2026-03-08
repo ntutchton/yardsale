@@ -1,4 +1,4 @@
-# Items for Sale
+# Yardsale Items
 #### 2 Kayaks
 Asking: $250 each, $400 for both
 
